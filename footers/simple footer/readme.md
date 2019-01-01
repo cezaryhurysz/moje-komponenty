@@ -1,0 +1,1 @@
+Kod najprostszego nag³ówka na Œwiecie.
